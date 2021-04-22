@@ -2,6 +2,9 @@
 
 ## Hey, yo! Whats up?
 
-Languages and tools
+Зови меня Катаныч. С тобой вместе мы покорим эту индустрию.
 
-Follow me
+Давай делиться опытом и гениальными мыслями:
+inst: @katanych
+vk: vk.com/k4t4ny4
+mail: k4t4ny4@mail.ru
